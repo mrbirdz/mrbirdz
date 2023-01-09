@@ -1,1 +1,1 @@
-- 👋 allaha taamulum yok | Ataturkcuyum ben
+- Thanks bro 🙏🙏🙏👈🏿👈🏿👈🏿👑👑👑😁😁😁😁👀👀👀👀♥️💀💀💀💀💀🕋🕋🕋🙏🙏🙏🙏
